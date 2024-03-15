@@ -1,1 +1,1 @@
-
+Beni oku
